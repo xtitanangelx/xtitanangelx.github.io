@@ -1,2 +1,0 @@
-# xtitanangelx.github.io
-grankarga
